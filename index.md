@@ -16,10 +16,8 @@ Here are 4 reasons why:
 
 4. **_Animal Safety_**
 
-  Clean beauty products are cruelty-free, meaning that they are not tested on animals. There really is no valid argument for testing potentially harmful beauty products on animals before humans. Supporting companies and brands that conduct this testing is unethical and simply irresponsible. Many of the top beauty brands like **Maybelline, Estee Lauder, and Benefit Cosmetics** _still_ test on animals, and will continue to do so until new regulations are made.
-
-
-
+  Clean beauty products are cruelty-free, meaning that they are not tested on animals. There really is no valid argument for testing potentially harmful beauty products on animals before humans. Supporting companies and brands that conduct this testing is unethical and simply irresponsible. Many of the top beauty brands like **Maybelline, Estee Lauder, and Benefit Cosmetics** _still_ test on animals, and will continue to do so until new regulations are made. 
+  
 
 
 
