@@ -3,19 +3,19 @@ Clean Beauty products are made with natural and safe ingredients that have been 
 
 Here are 4 reasons why:
 
-1. **_Lack of Regulation_**
+I. **_Lack of Regulation_**
 
   In the United States, there are currently **only 11** cosmetic ingredients that are banned by the FDA. This may not seem like a big deal, but in the EU, there are **over 1,300** banned ingredients. With this lack of regulation on American beauty companies, they are free to distribute products containing harmful chemicals and irritants.
 
-2. **_Our Health_**
+II. **_Our Health_**
 
   The chemicals that are often used in traditional shampoos, cleansers, and lotions can have serious short and long-term health effects. **Parabens** are one of the most common types of chemicals used to preserve cosmetics. They have been linked to an increased risk of breast cancer, reproductive problems, and endocrine disruption.
 
-3. **_Environmental Protection_**
+III. **_Environmental Protection_**
 
   Every time we take a shower, wash our face, or swim in a body of water, we are spreading the products that we use into the environment. Parabens have been proven to kill coral reef and other sea life. In recent years, parabens have been detected in lakes, oceans, and even inside fish. **When we use toxic products, our byproducts become toxic as well.**
 
-4. **_Animal Safety_**
+IV. **_Animal Safety_**
 
   Clean beauty products are cruelty-free, meaning that they are not tested on animals. We do not blieve that there is any valid argument for testing potentially harmful beauty products on animals before humans. Supporting companies and brands that conduct this testing is unethical and simply irresponsible. Many of the top beauty brands like **Maybelline, Estee Lauder, and Benefit Cosmetics** _still_ test on animals, and will continue to do so until new regulations are made. 
   
